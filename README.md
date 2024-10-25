@@ -1,1 +1,1 @@
-working on it
+ ##### <p align="center"> [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=500&size=15&duration=2500&pause=2000&color=5A7447&width=435&lines=cody+%2F+will%E3%80%80%E3%80%80heit%E3%80%80%E3%80%80parkour+princess;this+is+a+wip+%3Ap)](https://git.io/typing-svg)
